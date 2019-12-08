@@ -1,0 +1,1 @@
+# qa22_Oleg_class
